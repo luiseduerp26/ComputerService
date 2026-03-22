@@ -3,4 +3,4 @@
 
 También contarás con el mejor asesoramiento a nivel técnologico
 
-![Image Alt](https://ibb.co/nMj3mJSK)
+![Image Alt](https://github.com/luiseduerp26/ComputerService/blob/26103a29a180e4134d767b203e1745d791322aff/nuevoo.png)
